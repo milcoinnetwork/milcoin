@@ -1,0 +1,2 @@
+# milcoin
+Milcoin ICO
